@@ -5,9 +5,7 @@
   
 ## ✈️ 出發前準備
 ### 票券 / 交通
-- KKday 買票  
-- Haruka 來回票  
-  - 哥哥買 4/2 的 Haruka  以及  4/7 的 Haruka（或南海電鐵）  
+- KKday 買 Haruka 4月2日 單程票 (從**關西機場**到**JR京都**)(購買教學:[點我](https://www.youtube.com/shorts/sXkYSI0HSZY))
 - 哥哥換日元  
 - 我已經有近鐵帳密  
 - 4/7 若搭 Haruka：  
