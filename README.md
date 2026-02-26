@@ -208,7 +208,7 @@
 - 日本造幣局 [點我看影片](https://www.youtube.com/watch?v=wfK42TOTuf0&t=3s)  
 - 3 月開始預約，需隨時關注官網新聞  
 
-### 血拼採購
+### 🍢 血拼採購
 - KITTE 大阪百貨 [點我看影片](https://www.youtube.com/watch?v=8rQwEkCzC5w)  
   - 位於梅田，於 2024 年 7 月 31 日正式開幕，是大阪車站西口直通的新地標。這座商場坐落於原大阪中央郵局舊址的「JP TOWER 大阪」內，以「UNKNOWN」為概念，集結了日本各地的美食與物產。
 - 大阪血拼指南 [點我看影片](https://youtu.be/E_z5AGwMDSg?si=EpckvsYcGtpFJLs1)  
