@@ -33,16 +33,22 @@
 - 搭公車前往 清水寺  
 - 4 月初常有夜間點燈＋夜櫻，木造清水舞台搭配櫻花超震撼 [點我看影片](https://www.youtube.com/watch?v=1T2Wa0RwSTo)  
 - 🌇 日落 18:16  
-- 🕖 19:00 離開清水寺 → 附近吃飯  
+- 🕖 19:00 離開清水寺 → 附近吃飯
+- 餐廳建議:  
+  - Torisei (鳥せい 清水店)[餐廳位置點我]( https://maps.app.goo.gl/s9B6DpadjiV4Pb8p8)  
+  - Japanese Noodle 一寸法師[餐廳位置點我](https://maps.app.goo.gl/AXojYXRumVNTQNMB7)  
+  - 牛カツ京都勝牛 清水五条坂店[餐廳位置點我](https://maps.app.goo.gl/7anXnTR45JveriueA)  
+  - 古督梦[餐廳位置點我](https://maps.app.goo.gl/MjvHovSG81uvpfmG7)  
+
 ### 🌸 圓山公園夜櫻  
 - 走路 15 分鐘或搭公車  
 - 円山公園  
-  - 京都最有名夜櫻地點  
+  - 京都最有名夜櫻地點[點我看影片](https://www.youtube.com/shorts/swXimSl-cP0)  
   - 巨型枝垂櫻超壯觀，晚上打燈像在拍電影  
 ### ☕ 祇園夜景＋咖啡  
 - 買咖啡：Tully（21:00 關門）  
 - 拿著咖啡去 祇園白川  
-  - 石板路＋小河＋町家夜景＝京都代表畫面  
+  - 石板路＋小河＋町家夜景＝京都代表畫面[點我看影片](https://www.youtube.com/shorts/3hw5o2yCu0w)  
 ### 🛍️ 四條河原町商圈  
 - 過橋（四條橋）  
 - 逛 コトクロス阪急（22:00 關門）  
