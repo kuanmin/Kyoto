@@ -126,8 +126,16 @@
   
 ## 📅 4/5（星期日）｜嵐山＋小火車＋保津川遊船  
 - 🍳 早餐到 9:00  
+### 🚂 嵯峨野小火車  
+- 嵯峨野観光鉄道 [點我看影片](https://www.youtube.com/watch?v=JsfHnz03Yug)  
+- 嵯峨站(或 嵐山站) 坐到 亀岡站 (行車時間25分鐘)，從早上9:02 第一班次，每1小時1班(**建議坐11:02班次**)  
+### 🚣 保津川遊船  
+- 保津川 [點我看影片](https://www.youtube.com/shorts/H898Qe7z7bc)  
+- 從小火車下站處，坐巴士去搭船處。影片教學如何前往 [點我看影片](https://www.youtube.com/watch?v=jkm5ZL-9FTc)  
+- 全程航行約2小時。船的班次: 從早上9:00第1班次，之後每整點1班 (**建議坐13:00班次**)    
+- 船程會回到渡月橋附近（剛好看夕陽）  
 ### 🎋 嵐山散策  
-- 到 嵐山 [點我看影片](https://www.youtube.com/watch?v=KbtZPTcv7RY&pp=ygUP5bWQ5bGx5rih5pyI5qmL)  
+- 開始玩嵐山 [點我看影片](https://www.youtube.com/watch?v=KbtZPTcv7RY&pp=ygUP5bWQ5bGx5rih5pyI5qmL)  
 - 渡月橋  
 - % ARABICA 京都嵐山店  
 - 友禪的光林  
@@ -135,15 +143,8 @@
 - 天龍寺  
 - 野宮大黑天  
 - 野宮神社  
-- 嵐山竹林の小径  
-### 🚂 嵯峨野小火車  
-- 嵯峨野観光鉄道 [點我看影片](https://www.youtube.com/watch?v=JsfHnz03Yug)  
-- 嵐山站 → 亀岡站  
-### 🚣 保津川遊船  
-- 保津川 [點我看影片](https://www.youtube.com/shorts/H898Qe7z7bc)  
-- 船程會回到渡月橋附近（剛好看夕陽）  
+- 嵐山竹林の小径
 - 吃點小吃 → 回市區吃晚餐  
-
   
 ---  
   
@@ -159,7 +160,9 @@
   - 2026年期間限定活動: 2月21日至5月6日舉辦大型鐵道玩具展。  
 ### 🍢 錦市場大吃特吃  
 - 錦市場  
-- 建議吃飽或帶肉肉車上吃，一到大阪可以先衝去看大阪城的美麗夜櫻後，再吃晚餐    
+- 建議吃飽或帶肉肉車上吃，一到大阪可以先衝去看大阪城的美麗夜櫻後，再吃晚餐  
+### 🏨 回飯店拿行李  
+- 飯店距離京都車站不遠，但要留意發車時間是16:55     
 ### 🚃 乘坐古都風華特色列車 前往 大阪  
 - 近鐵觀光特急 [點我看影片](https://www.youtube.com/watch?v=OyyLAVZJ3Gc)  
   - 官網 [點我打開網頁](https://www.kintetsu.co.jp/foreign/chinese-han/aoniyoshi/)  
