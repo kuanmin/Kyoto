@@ -5,7 +5,7 @@
   
 ## ✈️ 出發前準備
 ### 票券 / 交通
-- 麻煩哥哥在 KKday 買 Haruka 4月2日 單程票 (從**關西機場**到**JR京都**)(購買教學:[點我](https://www.youtube.com/shorts/sXkYSI0HSZY))
+- 麻煩哥哥在 KKday 買 Haruka 4月2日 單程票 (從**關西機場**到**JR京都**)(購買教學:[點我](https://www.youtube.com/shorts/sXkYSI0HSZY)){:target="_blank"}
 - 麻煩哥哥換日元  
 - 我已經有近鐵帳密  
 - 4/7 若搭 Haruka：  
