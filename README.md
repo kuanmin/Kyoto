@@ -69,7 +69,7 @@
 - 京都御所  
   - 免費參觀，日式皇家庭園＋古建築  
 ### 吃午餐
-- 麵面閣 [點我看地圖位置](https://maps.app.goo.gl/Vb6aE2qXJT9T4vdM6?g_st=ic)  
+- 麵面閣 [餐廳位置點我](https://maps.app.goo.gl/Vb6aE2qXJT9T4vdM6?g_st=ic)  
 ### 🏯 金閣寺  
 - 金閣寺 [點我看影片](https://www.youtube.com/watch?v=1jz9-tTifUM)  
   - 金色舍利殿倒映在湖面，京都名片等級  
