@@ -90,7 +90,7 @@
 - 錦市場 [點我看影片](https://www.youtube.com/watch?v=g5nWdHb-8bk)  
   - 看錦市場內天滿宮亮燈  
 ### 🏯 清水寺 舉行傳統祭典「青龍會」（Seiryu-e）(參考)     
-- 活動名稱： 青龍會 春季巡行 [點我看影片](youtube.com/watch?v=kuCOPzfEf8E&pp=ygUo5riF5rC05a-6IOiIieihjOWCs-e1seelreWFuOOAjOmdkum-jeacgw%3D%3D)  
+- 活動名稱： 青龍會 春季巡行 [點我看影片](https://youtu.be/FB239n-kNhM?si=2f97oLD0ZYjw0NQx)  
 - 時間： 4月3日 14:00 - 15:30 左右  
 - 地點： 清水寺境內（從奧之院出發，巡經音羽瀑布、西門、門前町等地）  
 - 內容： 為祈求地區平安與除災，全長約 18 公尺的壯觀「青龍」會在法螺貝的伴奏下，由身著裝束的隊伍引領在寺內及門前街道巡行。  
