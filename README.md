@@ -28,7 +28,7 @@
 ## 📅 4/2（星期四）｜京都初登場＋夜櫻滿滿  
 - ✈️ 興奮地從桃園機場第 2 航廈，搭乘 華航 CI 0152，9:00 起飛賞櫻囉！  
 - ✈️ 12:50 抵達 大阪 關西國際機場第 1 航廈
-- 打開KKday的Haruka車票劃位(使用教學:[點我](https://www.youtube.com/shorts/sXkYSI0HSZY))
+- 打開KKday的Haruka車票劃位(使用教學:[點我](https://www.youtube.com/shorts/sXkYSI0HSZY)
 - 取行李 → 和旻旻會合  
 - 🚄 搭 Haruka，約 15:00 抵達 JR京都站  
 - 🚇 地鐵到「丸太町站」  
