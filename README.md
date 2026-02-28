@@ -21,6 +21,7 @@
 - 旻旻與哥哥拿健保卡和身份證和日幣5000元  
 - 旻旻辦eSIM  
 - 旻旻到日本機場買ICOCA卡2張 [點我看影片](https://youtube.com/shorts/Ux0NGVwnlD8?si=0xDcEAwBMu_c0zZl)  
+- 旻旻在飯店附近的超商Lawson領取平安神宮櫻音夜的實體票券。  
   
 ---  
   
