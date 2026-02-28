@@ -124,12 +124,20 @@
 ### 🏯 桂離宮  
 - 桂離宮 [點我看影片](https://www.youtube.com/watch?v=38NMD4n-KGU)  
   - 12:00 場次（有預約~別遲到囉！） 
-  - 日本庭園設計教科書等級  
+  - 日本庭園設計教科書等級
+ 
+
+### 午餐
+- お肉ダイニングきく  [餐廳位置點我](https://maps.app.goo.gl/YyAzks5k6evUXRNY6?g_st=ic)
+- 在平等院附近。先吃再逛平等院。  
+
+### 平等院
+- 平等院 [點我看影片](https://www.youtube.com/watch?v=wZaDYr62mn8)  
+  - 10 日圓硬幣背面就是這裡，超經典世界遺產  
 ### 🍵 宇治抹茶＋世界遺產  
 - 中村藤吉平等院店 [點我看影片](https://www.youtube.com/watch?v=KTO2kw0Nr2g)  
   - 抹茶控天堂，甜點＋茶飲都很強  
-- 平等院 [點我看影片](https://www.youtube.com/watch?v=wZaDYr62mn8)  
-  - 10 日圓硬幣背面就是這裡，超經典世界遺產  
+
 ### 🌸 宇治川櫻花季  
 - 橋上游兩岸及宇治公園，超過2,000棵櫻花交織成壯麗景色。 [點我看影片](https://www.youtube.com/watch?v=oCbjXtTvbXc&t=838s)    
 - 舉辦日期：4月4日（六）至 4月5日（日）。  
