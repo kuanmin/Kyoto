@@ -134,9 +134,10 @@
 ### 平等院
 - 平等院 [點我看影片](https://www.youtube.com/watch?v=wZaDYr62mn8)  
   - 10 日圓硬幣背面就是這裡，超經典世界遺產  
-### 🍵 宇治抹茶＋世界遺產  
+### 🍵 宇治抹茶  
 - 中村藤吉平等院店 [點我看影片](https://www.youtube.com/watch?v=KTO2kw0Nr2g)  
-  - 抹茶控天堂，甜點＋茶飲都很強  
+  - 抹茶控天堂，甜點＋茶飲都很強
+  - 17:00關門
 
 ### 🌸 宇治川櫻花季  
 - 橋上游兩岸及宇治公園，超過2,000棵櫻花交織成壯麗景色。 [點我看影片](https://www.youtube.com/watch?v=oCbjXtTvbXc&t=838s)    
