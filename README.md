@@ -139,8 +139,16 @@
 
 ### 🏯 桂離宮  
 - 桂離宮 [點我看影片](https://www.youtube.com/watch?v=38NMD4n-KGU)  
-  - 12:00 場次（有預約~別遲到囉！） 
-  - 日本庭園設計教科書等級
+  - 12:00 場次（有預約~別遲到囉！），**11:40要抵達門口**。
+  - 導覽開始前20分鐘開始接待，遲到者無法入內。到場出示「**參觀許可通知**」並現場支付每人1000日元，接受信用卡及其他電子支付。  
+  - **參觀許可通知**:  
+    - 登入網頁 [點我打開網頁](https://sankan.kunaicho.go.jp/permit/login?locale=en)  
+    - 輸入:  
+      - **Permit Number**:  
+        - 604421555  
+      - **Representative’s Phone Number**:  
+        - 4915560014040   
+  - 日本庭園設計教科書等級  
  
 ### 🌮 午餐
 - お肉ダイニングきく  [餐廳位置點我](https://maps.app.goo.gl/YyAzks5k6evUXRNY6?g_st=ic)
