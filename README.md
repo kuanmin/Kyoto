@@ -216,7 +216,9 @@
   
 ### 🍢 錦市場大吃特吃  
 - 錦市場  
-- 建議吃飽或帶肉肉車上吃，一到大阪可以先衝去看大阪城的美麗夜櫻後，再吃晚餐  
+- 建議吃飽或帶肉肉車上吃，一到大阪可以先衝去看大阪城的美麗夜櫻後，再吃晚餐
+- Mendokoro Janomeya 麺処 虵の目屋 [餐廳位置點我](https://maps.app.goo.gl/1icW4tzw6iENEBMF8?g_st=ic)
+- Nandattei なんだっ亭 [餐廳位置點我](https://maps.app.goo.gl/a85kzvxQJKBisXqZA?g_st=ic)
 ### 🏨 回飯店拿行李  
 - 飯店距離京都車站不遠，但要留意發車時間是16:55     
 ### 🚃 乘坐古都風華特色列車 前往 大阪  
