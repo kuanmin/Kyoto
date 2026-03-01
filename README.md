@@ -79,8 +79,12 @@
 - 地鐵「京都河原町站」 → 回飯店「丸太町站」  
 
 ### 安裝皇室機構的中文語音導覽
-- 頻果手機: [按我打開並安裝](https://apps.apple.com/us/app/visites-du-palais-imp%C3%A9rial/id1234070799?l=fr-FR)
+- 頻果手機: [按我打開並安裝](https://apps.apple.com/us/app/klook-travel-activities/id961850126)
 - 安卓手機: [按我打開並安裝](https://play.google.com/store/apps/details?id=jp.go.kunaicho.iha&hl=en)  
+
+### 安裝klook的中文語音導覽
+- 頻果手機: [按我打開並安裝](https://apps.apple.com/us/app/visites-du-palais-imp%C3%A9rial/id1234070799?l=fr-FR)  
+- 安卓手機: [按我打開並安裝](https://play.google.com/store/apps/details?id=com.klook&hl=zh_TW)  
 
 ### 🏨 超讚飯店『hotel MONday 京都烏丸二条』
 - 位於京都市中心的優質三星級飯店，以其絕佳的地理位置、高 CP 值以及貼心的免費服務（如清酒體驗和接駁車）。   
@@ -125,6 +129,9 @@
   - 金閣寺附近。吃飽再逛金閣寺。  
 ### 🏯 金閣寺  
 - 金閣寺 [點我看影片](https://www.youtube.com/watch?v=1jz9-tTifUM)  
+  - 打開手機中文導覽
+    - 頻果手機: [按我打開軟體](https://apps.apple.com/us/app/visites-du-palais-imp%C3%A9rial/id1234070799?l=fr-FR)  
+    - 安卓手機: [按我打開軟體](https://play.google.com/store/apps/details?id=com.klook&hl=zh_TW)  
   - 金色舍利殿倒映在湖面，京都名片等級
 
 ### 🌸 平野神社櫻花季  
@@ -208,6 +215,9 @@
 
 ### 🏯 二條城  
 - 二條城 [點我看影片](https://www.youtube.com/watch?v=qLKOUVEg8dw)  
+  - 打開手機中文導覽
+    - 頻果手機: [按我打開軟體](https://apps.apple.com/us/app/visites-du-palais-imp%C3%A9rial/id1234070799?l=fr-FR)  
+    - 安卓手機: [按我打開軟體](https://play.google.com/store/apps/details?id=com.klook&hl=zh_TW)  
   - 德川將軍居城，夜鶯地板很有趣  
   - 二條城櫻花祭 於3月19日至4月19日舉行，約300棵、50種櫻花綻放。夜間亮點為「SAKURA NIGHTS」光雕投影秀，結合沉浸式劇場與國寶二之丸御殿點燈，營造夢幻夜櫻氛圍，建議提前購買預售票。
   - 有報名「SAKURA NIGHTS」，18:00入場，到22:00結束。（有預約~別遲到囉！）  
