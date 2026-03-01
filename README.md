@@ -53,10 +53,15 @@
 
 ### 🌸 清水寺夜櫻  
 - 搭公車前往 清水寺 [點我看影片](https://www.youtube.com/watch?v=1T2Wa0RwSTo)    
-- 夜間特別參拜 於3月27日至4月5日舉行，有夜間點燈＋夜櫻，木造清水舞台搭配櫻花超震撼。  
-- 🌇 日落 18:16  
-- 🕖 19:00 離開清水寺 → 附近吃飯
-- 🍔 餐廳建議:  
+- 夜間特別參拜 於3月27日至4月5日舉行，有夜間點燈＋夜櫻，木造清水舞台搭配櫻花超震撼。
+- 打開手機中文導覽
+  - 頻果手機: [按我打開軟體](https://apps.apple.com/us/app/visites-du-palais-imp%C3%A9rial/id1234070799?l=fr-FR)  
+  - 安卓手機: [按我打開軟體](https://play.google.com/store/apps/details?id=com.klook&hl=zh_TW)  
+- 🌇 日落 18:16
+- 🕖 19:00 離開清水寺 
+
+### 🍔 晚餐  
+- 在清水寺附近的餐廳:  
   - Torisei (鳥せい 清水店)[餐廳位置點我]( https://maps.app.goo.gl/s9B6DpadjiV4Pb8p8)  
   - Japanese Noodle 一寸法師[餐廳位置點我](https://maps.app.goo.gl/AXojYXRumVNTQNMB7)  
   - 牛カツ京都勝牛 清水五条坂店[餐廳位置點我](https://maps.app.goo.gl/7anXnTR45JveriueA)  
@@ -288,6 +293,9 @@
 
 ### ⛩️ 伏見稻荷大社  
 - 伏見稻荷大社 [點我看影片](https://www.youtube.com/watch?v=kow5t4U7d8o)  位於京都伏見區，是全日本約3萬座稻荷神社的總本宮，擁有超過1300年歷史（建於711年）。其以祭祀商業與五穀豐收之神聞名，最著名的是綿延不絕的「千本鳥居」，以及作為神使的狐狸雕像，是京都香火最鼎盛的景點之一。   
+- 打開手機中文導覽
+  - 頻果手機: [按我打開軟體](https://apps.apple.com/us/app/visites-du-palais-imp%C3%A9rial/id1234070799?l=fr-FR)  
+  - 安卓手機: [按我打開軟體](https://play.google.com/store/apps/details?id=com.klook&hl=zh_TW)  
 - 千本鳥居（Senbon Torii）： 這是神社最壯觀的景色。數千座朱紅色鳥居綿延不絕，形成一條紅色的隧道，從本殿延伸至稻荷山頂，場景震撼。  
 - 狐狸使者： 稻荷神的使者是狐狸，因此境內隨處可見叼著鑰匙、卷軸或寶珠的狐狸石像。  
 - 信仰與神德： 主祀宇迦之御魂大神等稻荷神，自古以來便被視為保佑商業興盛、生意興隆、五穀豐收、家庭安全的守護神。  
