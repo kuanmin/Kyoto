@@ -5,7 +5,13 @@
   
 ## ✈️ 出發前準備  
 ### 🎟️ 票券  
-- 麻煩哥哥在 KKday 買 Haruka 4月2日 單程票 (從**關西機場**到**JR京都**)(購買教學:[點我](https://www.youtube.com/shorts/sXkYSI0HSZY))(旻旻的西鐵帳號ID:787824654799；PW:Aiop789!；需要email的話:kuanminchen.km@gmail.com)  
+- 麻煩哥哥在 KKday
+  - 買 Haruka 4月2日 單程票 (從**關西機場**到**JR京都**)(購買教學:[點我](https://www.youtube.com/shorts/sXkYSI0HSZY))(旻旻的西鐵帳號ID:787824654799；PW:Aiop789!；需要email的話:kuanminchen.km@gmail.com)  
+    - 購票網頁 [按我打開網頁](https://www.kkday.com/zh-tw/product/18940-kansai-airport-haruka-ticket-japan?srsltid=AfmBOopeXCUi8ukZxcyO7iRM7dCELj9FABF-kAahYjCI-bMKGcBFSS-g)  
+  - 買 南海電鐵 4月7日 單程票 (從**南海電鐵新今宮**到**關西機場**)  
+    - 線上買較便宜 [點我看影片說明](https://www.youtube.com/watch?v=9m0LgsJ7QG4&t=374s)  
+    - 購票網頁 [按我打開網頁](https://www.kkday.com/zh-tw/product/19691-nankai-rapit-airport-express-kix-to-osaka?srsltid=AfmBOooIct6EnrqCRkXIT1uKyglQP5Mzn9ywMVRNw2AIuKB5oMyrLFHh)
+    - 選擇 [南海電鐵 Rapi:t 機場快線單程票]，然後選擇 [難波站（新今宮站、天下茶屋站、堺站）出發（單程）]
 - 麻煩哥哥換日元  
 
 ### ☀️ 天氣  
@@ -242,21 +248,23 @@
     - 內裝： 內部壁紙與地毯點綴著來自正倉院寶物的「天平文樣」花鳥圖案，營造出如行走藝術品般的奢華氛圍。  
   - 布落格說明 [點我打開網頁](https://nicklee.tw/2936/kintetsu-aoniyoshi/)  
   - 16:55 京都出發 18:16 抵達 大阪難波，再坐**御堂筋線**，經1站到達飯店 星野集團OMO7    
-### 🌸 大阪夜櫻  
-1️⃣ 大阪城公園  
+### 🏯 大阪城公園 夜櫻 🌸  
 - 西之丸庭園＋大阪城天守閣夜櫻超夢幻 [點我看影片](https://www.youtube.com/watch?v=rcAuqhiftKE)  
 - 約 18:00–21:00 點燈
+
+### 🍴 晚餐
+- 伍栄門  [餐廳位置點我](https://maps.app.goo.gl/KTm6mA4ZsUTesnvn7?g_st=ic)  
   
-🍴 吃飯：伍栄門  [餐廳位置點我](https://maps.app.goo.gl/KTm6mA4ZsUTesnvn7?g_st=ic)  
-  
-2️⃣ 毛馬桜之宮公園  
-- 沿 大川 [點我看影片](https://www.youtube.com/watch?v=XDWEFP6P-0I)  
-- 4 公里櫻花河岸，夜晚氣氛超浪漫  
-### 🚄 買隔天南海電鐵車票  
-- 用機器買南海電車  
-  - 買從「新今宮」到「關西機場」  
-  - 方式一: 僅買特急票、搭配ICOCA卡進站  [點我看影片](https://www.youtube.com/watch?si=ep2SbFVJYvHsJEgj&v=RzZaRmrwBeM&feature=youtu.be) 
-  - 方式一: 全部的票  [點我看影片](https://youtu.be/97qyEB6hUHw?si=R7zhCrRZwPbgk04X) 
+### 🌇 毛馬櫻之宮公園 夜櫻 🌸  
+- 大阪必去夢幻夜櫻名所「毛馬櫻之宮公園」！全長4.2公里河岸兩側有近5,000棵櫻花樹，夜間點燈後，浪漫粉白櫻花倒映在河面上，氣氛極具詩意且寧靜。免門票、交通超方便，漫步在燈光映照的粉色隧道中，是大阪夜間約會與賞櫻的首選。   
+- [點我看影片](https://www.youtube.com/watch?v=XDWEFP6P-0I)  
+- 夢幻光影： 染井吉野櫻在燈光點綴下如夢似幻，夜風吹來櫻花隨風搖曳，極度浪漫。  
+- 4.2公里櫻花河岸： 從毛馬洗堰延伸至天滿橋，形成絕美的粉色河岸景觀。  
+- 超方便交通： JR「櫻之宮」站或地鐵「天滿橋」站步行3-5分鐘即達。  
+
+### 🚄 劃位 隔天南海電鐵車票  
+- 打開KKday的 南海電鐵 車票 劃位。 
+  - [點我看官網使用說明](https://www.kkday.com/zh-tw/product/19691-nankai-rapit-airport-express-kix-to-osaka?srsltid=AfmBOooIct6EnrqCRkXIT1uKyglQP5Mzn9ywMVRNw2AIuKB5oMyrLFHh)  
   
 ---  
   
@@ -275,7 +283,8 @@
 ### 🌸 其他備選賞櫻點  
 - 毛馬桜之宮公園（花最多）  
 - 中之島公園  
-- 大阪城公園（有星巴克）  
+- 大阪城公園（有星巴克）
+
 ### ✈️ 回程  
 - 從「新今宮」到「關西機場」坐南海電鐵特色列車：Rapi:t（速度快、車廂美）   
 - 關西機場第一航廈 搭乘 華航 CI 173 19:05 起飛回溫暖的家~ 
