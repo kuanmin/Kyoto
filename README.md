@@ -106,6 +106,9 @@
         - 604320768  
       - **Representative’s Phone Number**:  
         - 4915560014040  
+  - 打開手機中文導覽:
+    - 頻果手機: [按我打開軟體](https://apps.apple.com/us/app/visites-du-palais-imp%C3%A9rial/id1234070799?l=fr-FR)
+    - 安卓手機: [按我打開軟體](https://play.google.com/store/apps/details?id=jp.go.kunaicho.iha&hl=en)  
   - 昔日天皇退休居所，庭園設計非常細緻  
 
 - 京都御所  
@@ -166,7 +169,10 @@
       - **Permit Number**:  
         - 604421555  
       - **Representative’s Phone Number**:  
-        - 4915560014040   
+        - 4915560014040
+  - 打開手機中文導覽:
+    - 頻果手機: [按我打開軟體](https://apps.apple.com/us/app/visites-du-palais-imp%C3%A9rial/id1234070799?l=fr-FR)
+    - 安卓手機: [按我打開軟體](https://play.google.com/store/apps/details?id=jp.go.kunaicho.iha&hl=en) 
   - 日本庭園設計教科書等級  
  
 ### 🌮 午餐
