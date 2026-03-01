@@ -242,8 +242,10 @@
 ### 🌸 大阪夜櫻  
 1️⃣ 大阪城公園  
 - 西之丸庭園＋大阪城天守閣夜櫻超夢幻 [點我看影片](https://www.youtube.com/watch?v=rcAuqhiftKE)  
-- 約 18:00–21:00 點燈  
-🍴 吃飯：伍栄門  
+- 約 18:00–21:00 點燈
+  
+🍴 吃飯：伍栄門  [餐廳位置點我](https://maps.app.goo.gl/KTm6mA4ZsUTesnvn7?g_st=ic)  
+  
 2️⃣ 毛馬桜之宮公園  
 - 沿 大川 [點我看影片](https://www.youtube.com/watch?v=XDWEFP6P-0I)  
 - 4 公里櫻花河岸，夜晚氣氛超浪漫  
