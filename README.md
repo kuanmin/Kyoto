@@ -80,7 +80,7 @@
 ### 🏯 金閣寺  
 - 金閣寺 [點我看影片](https://www.youtube.com/watch?v=1jz9-tTifUM)  
   - 金色舍利殿倒映在湖面，京都名片等級  
-### 🌸 平野神社(白天)  
+### 🌸 平野神社櫻花季  
 - 平野神社 [點我看影片](https://www.youtube.com/shorts/HzlmG-7TY40)  
   - 京都最早開花的賞櫻名所  
   - 品種多，櫻花層次感超豐富
