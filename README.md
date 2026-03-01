@@ -32,7 +32,7 @@
 - 取行李 → 和旻旻會合  
 - 🚄 搭 Haruka，約 15:00 抵達 JR京都站  
 - 🚇 地鐵到「丸太町站」  
-- 🏨 入住 ホテル MONday 京都烏丸二条（放行李）  
+- 🏨 入住 ホテル MONday 京都烏丸二条（放行李）[飯店位置點我](https://maps.app.goo.gl/3aNrw5Es2JXgJQn86?g_st=ic)    
 ### 🌸 清水寺夜櫻  
 - 搭公車前往 清水寺 [點我看影片](https://www.youtube.com/watch?v=1T2Wa0RwSTo)    
 - 夜間特別參拜 於3月27日至4月5日舉行，有夜間點燈＋夜櫻，木造清水舞台搭配櫻花超震撼。  
