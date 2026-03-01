@@ -12,7 +12,7 @@
 - 京都 4 月初氣溫：約 9～19 度  
   - 👉 建議：洋蔥式穿搭＋薄外套（晚上看夜櫻會冷）  
 ### 🔧 小工具
-- 日本的案內轉乘查詢 [按我打開網頁](https://world.jorudan.co.jp/mln/zh-tw/)  
+- 日本的案內轉乘查詢 [按我打開網頁](https://www.navitime.co.jp/zh-tw/transfer/)  
 - 結帳的手勢 [點我查看](https://youtube.com/shorts/hr9Yp-B4Sts?si=Qmza32272CdMggQt)   
   
 ---  
