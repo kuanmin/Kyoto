@@ -220,6 +220,10 @@
 ### 🚂 嵯峨野小火車  
 - 嵯峨野観光鉄道 [點我看影片](https://www.youtube.com/watch?v=JsfHnz03Yug)  
 - 嵯峨站(或 嵐山站) 坐到 亀岡站 (行車時間25分鐘)，從早上9:02 第一班次，每1小時1班(**建議坐11:02班次**)  
+
+### 🚌 坐公車前往乘船處  
+- 直行39:小火車龜岡站-保津川乘船場前 [京阪京都交通](https://japantravel.navitime.com/zh-tw/area/jp/railroad/00045010/)
+
 ### 🚣 保津川遊船  
 - 保津川 [點我看影片](https://www.youtube.com/shorts/H898Qe7z7bc)  
 - 從小火車下站處，坐巴士去搭船處。影片教學如何前往 [點我看影片](https://www.youtube.com/watch?v=jkm5ZL-9FTc)  
