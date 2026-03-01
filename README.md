@@ -175,6 +175,7 @@
 
 ### 🏫 平等院
 - 平等院 [點我看影片](https://www.youtube.com/watch?v=wZaDYr62mn8)  
+  - 中文語音導覽 [點我開啟語音導覽](https://byodoinguide.jp/tc/contents/content01/#)  
   - 10 日圓硬幣背面就是這裡，超經典世界遺產
   - 16:10關門
 ### 🍵 宇治抹茶  
