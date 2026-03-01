@@ -74,7 +74,7 @@
 
 ### 安裝皇室機構的中文語音導覽
 - 頻果手機: [按我打開並安裝](https://apps.apple.com/us/app/visites-du-palais-imp%C3%A9rial/id1234070799?l=fr-FR)
-- 安桌手機: [按我打開並安裝](https://play.google.com/store/apps/details?id=jp.go.kunaicho.iha&hl=en)  
+- 安卓手機: [按我打開並安裝](https://play.google.com/store/apps/details?id=jp.go.kunaicho.iha&hl=en)  
 
 ### 🏨 超讚飯店『hotel MONday 京都烏丸二条』
 - 位於京都市中心的優質三星級飯店，以其絕佳的地理位置、高 CP 值以及貼心的免費服務（如清酒體驗和接駁車）。   
