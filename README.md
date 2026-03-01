@@ -16,10 +16,12 @@
 
 ### ☀️ 天氣  
 - 京都 4 月初氣溫：約 9～19 度  
-  - 👉 建議：洋蔥式穿搭＋薄外套（晚上看夜櫻會冷）  
+  - 👉 建議：洋蔥式穿搭＋薄外套（晚上看夜櫻會冷）
+
 ### 🔧 小工具
 - 日本的案內轉乘查詢 [按我打開網頁](https://www.navitime.co.jp/zh-tw/transfer/)  
-- 結帳的手勢 [點我查看](https://youtube.com/shorts/hr9Yp-B4Sts?si=Qmza32272CdMggQt)   
+- 結帳的手勢 [點我查看](https://youtube.com/shorts/hr9Yp-B4Sts?si=Qmza32272CdMggQt)
+- 如何拍美美櫻花 [點我查看](https://youtube.com/shorts/luUSSzC6-Zg?si=hQvNGFl4-9M2l3LJ)  
   
 ---  
   
@@ -38,7 +40,8 @@
 - 取行李 → 和旻旻會合  
 - 🚄 搭 Haruka，約 15:00 抵達 JR京都站  
 - 🚇 地鐵到「丸太町站」  
-- 🏨 入住 「ホテル MONday 京都烏丸二条」飯店（放行李）[飯店位置點我](https://maps.app.goo.gl/3aNrw5Es2JXgJQn86?g_st=ic)    
+- 🏨 入住 「ホテル MONday 京都烏丸二条」飯店（放行李）[飯店位置點我](https://maps.app.goo.gl/3aNrw5Es2JXgJQn86?g_st=ic)
+
 ### 🌸 清水寺夜櫻  
 - 搭公車前往 清水寺 [點我看影片](https://www.youtube.com/watch?v=1T2Wa0RwSTo)    
 - 夜間特別參拜 於3月27日至4月5日舉行，有夜間點燈＋夜櫻，木造清水舞台搭配櫻花超震撼。  
@@ -54,11 +57,13 @@
 - 走路 15 分鐘或搭公車  
 - 円山公園  
   - 京都最有名夜櫻地點 [點我看影片](https://www.youtube.com/shorts/swXimSl-cP0)  
-  - 巨型枝垂櫻超壯觀，晚上打燈像在拍電影  
+  - 巨型枝垂櫻超壯觀，晚上打燈像在拍電影
+
 ### ☕ 祇園夜景＋咖啡  
 - 買咖啡：Tully（21:00 關門）  
 - 拿著咖啡去 祇園白川  
-  - 石板路＋小河＋町家夜景＝京都代表畫面 [點我看影片](https://www.youtube.com/shorts/3hw5o2yCu0w)  
+  - 石板路＋小河＋町家夜景＝京都代表畫面 [點我看影片](https://www.youtube.com/shorts/3hw5o2yCu0w)
+
 ### 🛍️ 四條河原町商圈  
 - 過橋（四條橋）  
 - 逛 コトクロス阪急（22:00 關門）  
@@ -75,13 +80,15 @@
 ---  
   
 ## 📅 4/3（星期五）｜皇室庭園＋鴨川櫻花道＋金閣寺＋平野神社櫻花季＋平安神宮櫻音夜  
-- 🍳 早餐到 9:00  
+- 🍳 早餐到 9:00
+
 ### 🏯 皇室庭園  
 - 京都仙洞御所 [點我看影片](http://youtube.com/shorts/_CWD3pZ8iYM)  
   - 9:30 場次（有預約~別遲到囉！）  
   - 昔日天皇退休居所，庭園設計非常細緻  
 - 京都御所  
   - 免費參觀，日式皇家庭園＋古建築
+
 ### 🐥 鴨川  
 - 鴨川賞櫻🌸[點我看影片](https://youtu.be/IAVA4uxrxsk?si=MxVohz-3KDM6NFJ0)  
   - 京都鴨川的跳腳石（飛び石）是橫跨河川的趣味造型踏腳石，以「烏龜」造型最著名，是熱門打卡點。從三條走到四條的河岸散策，特色在於結合現代與傳統的河畔風情，夏季可見「納涼床」，兩岸種滿櫻花，充滿悠閒的都市慢活氛圍，適合悠閒散步。   
@@ -93,7 +100,8 @@
   - 金閣寺附近。吃飽再逛金閣寺。  
 ### 🏯 金閣寺  
 - 金閣寺 [點我看影片](https://www.youtube.com/watch?v=1jz9-tTifUM)  
-  - 金色舍利殿倒映在湖面，京都名片等級  
+  - 金色舍利殿倒映在湖面，京都名片等級
+
 ### 🌸 平野神社櫻花季  
 - 平野神社 [點我看影片](https://www.youtube.com/shorts/HzlmG-7TY40)  
   - 京都最早開花的賞櫻名所  
@@ -124,7 +132,8 @@
   
 ## 📅 4/4（星期六）｜桂離宮＋平等院＋宇治抹茶＋宇治川櫻花季＋二條城奇幻光雕秀  
 - 🍳 早餐到 10:00  
-- 拿行李 → 入住「ホテル トウ 西洞院」飯店  [飯店位置點我](https://maps.app.goo.gl/QXvfYM773ufbvJrj6?g_st=ic)  
+- 拿行李 → 入住「ホテル トウ 西洞院」飯店  [飯店位置點我](https://maps.app.goo.gl/QXvfYM773ufbvJrj6?g_st=ic)
+
 ### 🏯 桂離宮  
 - 桂離宮 [點我看影片](https://www.youtube.com/watch?v=38NMD4n-KGU)  
   - 12:00 場次（有預約~別遲到囉！） 
@@ -184,7 +193,8 @@
 - 保津川 [點我看影片](https://www.youtube.com/shorts/H898Qe7z7bc)  
 - 從小火車下站處，坐巴士去搭船處。影片教學如何前往 [點我看影片](https://www.youtube.com/watch?v=jkm5ZL-9FTc)  
 - 全程航行約2小時。船的班次: 從早上9:00第1班次，之後每整點1班 (**建議坐13:00班次**)    
-- 船程會回到渡月橋附近（剛好看夕陽）  
+- 船程會回到渡月橋附近（剛好看夕陽）
+
 ### 🎋 嵐山散策  
 - 開始玩嵐山 [點我看影片](https://www.youtube.com/watch?v=KbtZPTcv7RY&pp=ygUP5bWQ5bGx5rih5pyI5qmL)  
 - 渡月橋  
@@ -270,7 +280,8 @@
   
 ## 📅 4/7（星期二）｜最後衝刺賞櫻＋回家  
 - 🍳 早餐到 10:00  
-- 11:00 退房，寄行李  
+- 11:00 退房，寄行李
+
 ### 🌸 造幣局櫻花通道（要搶）  
 - 日本造幣局 [點我看影片](https://www.youtube.com/watch?v=wfK42TOTuf0&t=3s)  
 - 3 月開始預約，需隨時關注官網新聞  
