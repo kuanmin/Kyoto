@@ -28,6 +28,14 @@
 - 日本的案內轉乘查詢 [按我打開網頁](https://www.navitime.co.jp/zh-tw/transfer/)  
 - 結帳的手勢 [點我查看](https://youtube.com/shorts/hr9Yp-B4Sts?si=Qmza32272CdMggQt)
 - 如何拍美美櫻花 [點我查看](https://youtube.com/shorts/luUSSzC6-Zg?si=hQvNGFl4-9M2l3LJ)  
+
+### 🥟 安裝klook的中文語音導覽
+- 頻果手機: [按我打開並安裝](https://apps.apple.com/us/app/visites-du-palais-imp%C3%A9rial/id1234070799?l=fr-FR)  
+- 安卓手機: [按我打開並安裝](https://play.google.com/store/apps/details?id=com.klook&hl=zh_TW)
+- 並且，登入旻旻帳號:  
+  - 電子信箱:  
+    - kuanminchen.km@gmail.com
+  - 接著會傳送驗證碼，旻旻會協助大家一一登入  
   
 ---  
   
@@ -83,17 +91,9 @@
 - 逛 コトクロス阪急（22:00 關門）  
 - 地鐵「京都河原町站」 → 回飯店「丸太町站」  
 
-### 安裝皇室機構的中文語音導覽
+### 🍭 安裝皇室機構的中文語音導覽
 - 頻果手機: [按我打開並安裝](https://apps.apple.com/us/app/klook-travel-activities/id961850126)
 - 安卓手機: [按我打開並安裝](https://play.google.com/store/apps/details?id=jp.go.kunaicho.iha&hl=en)  
-
-### 安裝klook的中文語音導覽
-- 頻果手機: [按我打開並安裝](https://apps.apple.com/us/app/visites-du-palais-imp%C3%A9rial/id1234070799?l=fr-FR)  
-- 安卓手機: [按我打開並安裝](https://play.google.com/store/apps/details?id=com.klook&hl=zh_TW)
-- 並且，登入旻旻帳號:  
-  - 電子信箱:  
-    - kuanminchen.km@gmail.com
-  - 接著會傳送驗證碼，旻旻會協助大家一一登入  
 
 ### 🏨 超讚飯店『hotel MONday 京都烏丸二条』
 - 位於京都市中心的優質三星級飯店，以其絕佳的地理位置、高 CP 值以及貼心的免費服務（如清酒體驗和接駁車）。   
