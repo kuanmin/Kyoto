@@ -32,7 +32,7 @@
 - 取行李 → 和旻旻會合  
 - 🚄 搭 Haruka，約 15:00 抵達 JR京都站  
 - 🚇 地鐵到「丸太町站」  
-- 🏨 入住 ホテル MONday 京都烏丸二条（放行李）[飯店位置點我](https://maps.app.goo.gl/3aNrw5Es2JXgJQn86?g_st=ic)    
+- 🏨 入住 「ホテル MONday 京都烏丸二条」飯店（放行李）[飯店位置點我](https://maps.app.goo.gl/3aNrw5Es2JXgJQn86?g_st=ic)    
 ### 🌸 清水寺夜櫻  
 - 搭公車前往 清水寺 [點我看影片](https://www.youtube.com/watch?v=1T2Wa0RwSTo)    
 - 夜間特別參拜 於3月27日至4月5日舉行，有夜間點燈＋夜櫻，木造清水舞台搭配櫻花超震撼。  
@@ -110,7 +110,7 @@
   
 ## 📅 4/4（星期六）｜桂離宮＋平等院＋宇治抹茶＋宇治川櫻花季＋二條城奇幻光雕秀  
 - 🍳 早餐到 10:00  
-- 拿行李 → 換到「ホテル トウ 西洞院」飯店  [飯店位置點我](https://maps.app.goo.gl/QXvfYM773ufbvJrj6?g_st=ic)  
+- 拿行李 → 入住「ホテル トウ 西洞院」飯店  [飯店位置點我](https://maps.app.goo.gl/QXvfYM773ufbvJrj6?g_st=ic)  
 ### 🏯 桂離宮  
 - 桂離宮 [點我看影片](https://www.youtube.com/watch?v=38NMD4n-KGU)  
   - 12:00 場次（有預約~別遲到囉！） 
