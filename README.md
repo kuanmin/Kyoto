@@ -29,7 +29,8 @@
 - 旻旻與哥哥拿健保卡和身份證和日幣5000元  
 - 旻旻辦eSIM  
 - 旻旻到日本機場買ICOCA卡2張 [點我看影片](https://youtube.com/shorts/Ux0NGVwnlD8?si=0xDcEAwBMu_c0zZl)  
-- 旻旻在飯店附近的超商Lawson領取平安神宮櫻音夜的實體票券。Lawson 便利商店內有一台名為「Loppi」的多媒體機台，功能與臺灣小七的 ibon 非常相似。  
+- 旻旻在飯店附近的超商Lawson領取平安神宮櫻音夜的實體票券。Lawson 便利商店內有一台名為「Loppi」的多媒體機台，功能與臺灣小七的 ibon 非常相似。
+- 旻旻入境之後，將入境貼紙登入到入境系統 [點我打開網頁](https://www.vjw.digital.go.jp/)，方便之後採購辦理退稅。  
   
 ---  
   
@@ -38,7 +39,8 @@
 - ✈️ 12:50 抵達 大阪 關西國際機場第 1 航廈
 - 打開日本入境資料QR碼 通過海關檢查 [點我打開網頁](https://www.vjw.digital.go.jp/)   
 - 打開KKday的Haruka車票劃位。使用教學:[點我](https://www.youtube.com/shorts/sXkYSI0HSZY)
-- 取行李 → 和旻旻會合  
+- 取行李 → 和旻旻會合
+- 麻煩哥哥將入境貼紙登入到入境系統 [點我打開網頁](https://www.vjw.digital.go.jp/)，方便之後採購辦理退稅。  
 - 🚄 搭 Haruka，約 15:00 抵達 JR京都站  
 - 🚇 地鐵到「丸太町站」  
 - 🏨 入住 「ホテル MONday 京都烏丸二条」飯店（放行李）[飯店位置點我](https://maps.app.goo.gl/3aNrw5Es2JXgJQn86?g_st=ic)
