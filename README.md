@@ -75,8 +75,11 @@
   - 牛カツ京都勝牛 清水五条坂店[餐廳位置點我](https://maps.app.goo.gl/7anXnTR45JveriueA)  
   - 古督梦[餐廳位置點我](https://maps.app.goo.gl/MjvHovSG81uvpfmG7)  
 
-### 🌸 圓山公園夜櫻  
+### 🌸 八坂神社、圓山公園夜櫻  
 - 走路 15 分鐘或搭公車  
+- 打開手機中文導覽
+  - 頻果手機: [按我打開軟體](https://apps.apple.com/us/app/visites-du-palais-imp%C3%A9rial/id1234070799?l=fr-FR)  
+  - 安卓手機: [按我打開軟體](https://play.google.com/store/apps/details?id=com.klook&hl=zh_TW)  
 - 円山公園  
   - 京都最有名夜櫻地點 [點我看影片](https://www.youtube.com/shorts/swXimSl-cP0)  
   - 巨型枝垂櫻超壯觀，晚上打燈像在拍電影
