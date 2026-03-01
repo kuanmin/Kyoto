@@ -12,10 +12,13 @@
     - 線上買較便宜 [點我看影片說明](https://www.youtube.com/watch?v=9m0LgsJ7QG4&t=374s)  
     - 購票網頁 [按我打開網頁](https://www.kkday.com/zh-tw/product/19691-nankai-rapit-airport-express-kix-to-osaka?srsltid=AfmBOooIct6EnrqCRkXIT1uKyglQP5Mzn9ywMVRNw2AIuKB5oMyrLFHh)
     - 選擇 [南海電鐵 Rapi:t 機場快線單程票]，然後選擇 [難波站（新今宮站、天下茶屋站、堺站）出發（單程）]
+
+### 💴 換日元  
 - 麻煩哥哥換日元  
-- 辦理漫遊方案 (台灣大哥大)  
-  - 7天、4人、5GB: 499元  
-  - 7天、4人、12GB: 799元  
+
+### 📡 申請漫遊 (台灣大哥大)  
+- 7天、4人、5GB: 499元  
+- 7天、4人、12GB: 799元  
 
 ### ☀️ 天氣  
 - 京都 4 月初氣溫：約 9～19 度  
