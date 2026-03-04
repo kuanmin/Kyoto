@@ -27,7 +27,8 @@
 ### 🔧 小工具
 - 日本的案內轉乘查詢 [按我打開網頁](https://www.navitime.co.jp/zh-tw/transfer/)  
 - 結帳的手勢 [點我查看](https://youtube.com/shorts/hr9Yp-B4Sts?si=Qmza32272CdMggQt)
-- 如何拍美美櫻花 [點我查看](https://youtube.com/shorts/luUSSzC6-Zg?si=hQvNGFl4-9M2l3LJ)  
+- 如何拍美美櫻花 [點我查看](https://youtube.com/shorts/luUSSzC6-Zg?si=hQvNGFl4-9M2l3LJ)
+- 京都必吃美食 [點我開吃](https://www.youtube.com/watch?v=tDx9fbbUuiU)  
 
 ### 🥟 安裝klook的中文語音導覽
 - 頻果手機: [按我打開並安裝](https://apps.apple.com/us/app/visites-du-palais-imp%C3%A9rial/id1234070799?l=fr-FR)  
