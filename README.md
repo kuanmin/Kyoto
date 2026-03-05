@@ -27,7 +27,7 @@
         - 17:32 / 18:07 / rapi:t B57號  
         - 18:02 / 18:39 / rapi:t B59號
       - 已購票列車的確認及變更方法 [點我查看](https://www.club-nankai.jp/traffic/ticketless/tc/train_change.html)  
-        - 未註冊會員的乘客如需「變更網售特急列車票的列車」，請在「特急列車的車票購買/查詢頁面」(https://www.club-nankai.jp/sta/web/OnetimeTop.do)中進行相關操作。  
+        - 未註冊會員的乘客如需「變更網售特急列車票的列車」，請在「特急列車的車票購買/查詢頁面」(https://www.club-nankai.jp/sta/web/OnetimeTop.do)  中進行相關操作。  
         - 最多可變更2次列車，且必須距離列車從乘車站發車的時間3分鐘以上。但是，無法變更乘車人數。  
         - 變更列車後，如果變更前已支付的費用不足，則您還需要支付差價；如有剩餘，將退還您差價。  
 
