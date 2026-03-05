@@ -9,9 +9,20 @@
   - 買 Haruka 4月2日 單程票 (從**關西機場**到**JR京都**)(購買教學:[點我](https://www.youtube.com/shorts/sXkYSI0HSZY))(旻旻的西鐵帳號ID:787824654799；PW:Aiop789!；需要email的話:kuanminchen.km@gmail.com)  
     - 購票網頁 [按我打開網頁](https://www.kkday.com/zh-tw/product/18940-kansai-airport-haruka-ticket-japan?srsltid=AfmBOopeXCUi8ukZxcyO7iRM7dCELj9FABF-kAahYjCI-bMKGcBFSS-g)  
   - 買 南海電鐵 4月7日 單程票 (從**南海電鐵新今宮**到**關西機場**)  
-    - 線上買較便宜 [點我看影片說明](https://www.youtube.com/watch?v=9m0LgsJ7QG4&t=374s)  
-    - 購票網頁 [按我打開網頁](https://www.kkday.com/zh-tw/product/19691-nankai-rapit-airport-express-kix-to-osaka?srsltid=AfmBOooIct6EnrqCRkXIT1uKyglQP5Mzn9ywMVRNw2AIuKB5oMyrLFHh)
-    - 選擇 [南海電鐵 Rapi:t 機場快線單程票]，然後選擇 [難波站（新今宮站、天下茶屋站、堺站）出發（單程）]
+    - KKDay 購買
+      - 線上買較便宜 [點我看影片說明](https://www.youtube.com/watch?v=9m0LgsJ7QG4&t=374s)  
+      - 購票網頁 [按我打開網頁](https://www.kkday.com/zh-tw/product/19691-nankai-rapit-airport-express-kix-to-osaka?srsltid=AfmBOooIct6EnrqCRkXIT1uKyglQP5Mzn9ywMVRNw2AIuKB5oMyrLFHh)
+      - 選擇 [南海電鐵 Rapi:t 機場快線單程票]，然後選擇 [難波站（新今宮站、天下茶屋站、堺站）出發（單程）]  
+    - 南海電鐵(公司) 官網 購買  
+      - 官網 [點我打開官網](https://www.club-nankai.jp/traffic/ticketless/tc/train_change.html) (有購票說明)  
+      - 與KKDay 先購票，之後再選班次劃位 (即便劃好了，還是可以在線上再更改)  
+      - 爸媽飛機 19:02 起飛  
+        - 新今宮 / 關西機場 / 南海電鐵  
+        - 16:02 / 16:41 / rapi:t A29號  
+        - 16:32 / 17:07 / rapi:t B53號  
+        - 17:02 / 17:37 / rapi:t B55號  
+        - 17:32 / 18:07 / rapi:t B57號  
+        - 18:02 / 18:39 / rapi:t B59號   
 
 ### 💴 換日元  
 - 麻煩哥哥換日元  
