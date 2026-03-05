@@ -15,6 +15,7 @@
       - 選擇 [南海電鐵 Rapi:t 機場快線單程票]，然後選擇 [難波站（新今宮站、天下茶屋站、堺站）出發（單程）]  
     - 南海電鐵(公司) 官網 購買  
       - 官網 [點我打開官網](https://www.club-nankai.jp/traffic/ticketless/tc/train_change.html) (有購票說明)  
+      - 官網中文購票說明 [點我打開](https://www.club-nankai.jp/traffic/ticketless/tc/?_gl=1*1ltpb6k*_ga*MjEyNjA4MTkzNy4xNzcyMzQ3NTIy*_ga_1NFRFFMWCW*czE3NzI3MjEyNjIkbzIkZzEkdDE3NzI3MjM0MTEkajU5JGwwJGgw)  
       - 與KKDay 先購票，之後再選班次劃位 (即便劃好了，還是可以在線上再更改)  
       - 爸媽飛機 19:02 起飛  
         - 新今宮 / 關西機場 / 南海電鐵  
