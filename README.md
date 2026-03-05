@@ -16,10 +16,11 @@
     - 南海電鐵(公司) 官網 購買  
       - 官網 [點我打開官網](https://www.club-nankai.jp/traffic/ticketless/tc/train_change.html) (有購票說明)  
       - 官網中文購票說明 [點我打開](https://www.club-nankai.jp/traffic/ticketless/tc/?_gl=1*1ltpb6k*_ga*MjEyNjA4MTkzNy4xNzcyMzQ3NTIy*_ga_1NFRFFMWCW*czE3NzI3MjEyNjIkbzIkZzEkdDE3NzI3MjM0MTEkajU5JGwwJGgw)
-      - **不用註冊會員、也可以購票**  
+      - **不用註冊會員、也可以購票**
+      - **線上買，一樣會比現場買便宜！**  
       - (與KKDay一樣)先購票，之後再選班次劃位 (即便劃好了，還是可以在線上再更改)  
       - 爸媽飛機 19:02 起飛  
-        - 新今宮 / 關西機場 / 南海電鐵  
+        - **新今宮**出發時間 / **關西機場**到達時間 / 南海電鐵**車次**    
         - 16:02 / 16:41 / rapi:t A29號  
         - 16:32 / 17:07 / rapi:t B53號  
         - 17:02 / 17:37 / rapi:t B55號  
