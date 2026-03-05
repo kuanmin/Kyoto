@@ -23,7 +23,8 @@
         - 16:32 / 17:07 / rapi:t B53號  
         - 17:02 / 17:37 / rapi:t B55號  
         - 17:32 / 18:07 / rapi:t B57號  
-        - 18:02 / 18:39 / rapi:t B59號   
+        - 18:02 / 18:39 / rapi:t B59號
+      - 已購票列車的確認及變更方法 [點我查看](https://www.club-nankai.jp/traffic/ticketless/tc/train_change.html)  
 
 ### 💴 換日元  
 - 麻煩哥哥換日元  
