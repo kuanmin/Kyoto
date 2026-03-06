@@ -16,6 +16,7 @@
     - 南海電鐵(公司) 官網 購買  
       - 官網 [點我打開官網](https://www.club-nankai.jp/traffic/ticketless/tc/train_change.html) (有購票說明)  
       - 官網中文購票說明 [點我打開](https://www.club-nankai.jp/traffic/ticketless/tc/?_gl=1*1ltpb6k*_ga*MjEyNjA4MTkzNy4xNzcyMzQ3NTIy*_ga_1NFRFFMWCW*czE3NzI3MjEyNjIkbzIkZzEkdDE3NzI3MjM0MTEkajU5JGwwJGgw)
+      - 電子票使用方法 [點我查看](https://www.howto-osaka.com/tc/ticket/rapit/)  
       - **不用註冊會員、也可以購票**
       - **線上買，一樣會比現場買便宜！**  
       - (與KKDay一樣)先購票，之後再選班次劃位 (即便劃好了，還是可以在線上再更改)  
