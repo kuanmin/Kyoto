@@ -458,7 +458,7 @@
 ### 🏨 回飯店拿行李  
 - 飯店距離京都車站不遠，但要留意發車時間是16:55     
 ### 🚃 乘坐古都風華特色列車 前往 大阪  
-- 近鐵觀光特急 [點我看影片1](https://www.youtube.com/watch?v=OyyLAVZJ3Gc)  [點我看影片2](https://www.youtube.com/watch?v=aCW5LN8OOik)  
+- 近鐵觀光特急 [點我看影片1](https://www.youtube.com/watch?v=OyyLAVZJ3Gc) 、 [點我看影片2](https://www.youtube.com/watch?v=aCW5LN8OOik)  
   - 官網 [點我打開網頁](https://www.kintetsu.co.jp/foreign/chinese-han/aoniyoshi/)  
   - 「AONIYOSHI」（青丹吉 / あをによし）於 2022 年 4 月開航，是一款連結大阪、奈良、京都三地的豪華觀光列車。其名稱「Aoniyoshi」源自於古代對奈良城的讚美枕詞，象徵著奈良古都的優雅與美麗。   
   - 列車特色與設計  
