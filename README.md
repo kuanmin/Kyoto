@@ -14,12 +14,11 @@
       - 購票網頁 [按我打開網頁](https://www.kkday.com/zh-tw/product/19691-nankai-rapit-airport-express-kix-to-osaka?srsltid=AfmBOooIct6EnrqCRkXIT1uKyglQP5Mzn9ywMVRNw2AIuKB5oMyrLFHh)
       - 選擇 [南海電鐵 Rapi:t 機場快線單程票]，然後選擇 [難波站（新今宮站、天下茶屋站、堺站）出發（單程）]  
     - 南海電鐵(公司) 官網 購買  
-      - 官網 [點我打開官網](https://www.club-nankai.jp/traffic/ticketless/tc/train_change.html) (有購票說明)  
-      - 官網中文購票說明 [點我打開](https://www.club-nankai.jp/traffic/ticketless/tc/?_gl=1*1ltpb6k*_ga*MjEyNjA4MTkzNy4xNzcyMzQ3NTIy*_ga_1NFRFFMWCW*czE3NzI3MjEyNjIkbzIkZzEkdDE3NzI3MjM0MTEkajU5JGwwJGgw)
-      - 電子票使用方法 [點我查看](https://www.howto-osaka.com/tc/ticket/rapit/)  
-      - **不用註冊會員、也可以購票**
-      - **線上買，一樣會比現場買便宜！**  
-      - (與KKDay一樣)先購票，之後再選班次劃位 (即便劃好了，還是可以在線上再更改)  
+      - 官網購買電子券 [點我打開官網](https://www.howto-osaka.com/tc/ticket/rapit/)  
+      - 此票券包含「單程乘車券」以及「單程特急Rapi:t特急券」  
+      - 購票後，分票說明 [點我查看](https://content.linktivity.io/supplier-link/nankai/1IHDZ_0ab4e4bc-d14a-4c69-aa0f-7751d2676c06.pdf)
+      - 使用QR碼進站  
+      - **用email註冊會員**
       - 爸媽飛機 19:02 起飛  
         - **新今宮**出發時間 / **關西機場**到達時間 / 南海電鐵**車次**    
         - 16:02 / 16:41 / rapi:t A29號  
@@ -27,11 +26,6 @@
         - 17:02 / 17:37 / rapi:t B55號  
         - 17:32 / 18:07 / rapi:t B57號  
         - 18:02 / 18:39 / rapi:t B59號
-      - 已購票列車的確認及變更方法 [點我查看](https://www.club-nankai.jp/traffic/ticketless/tc/train_change.html)  
-        - 未註冊會員的乘客如需「變更網售特急列車票的列車」，請在「特急列車的車票購買/查詢頁面」(https://www.club-nankai.jp/sta/web/OnetimeTop.do)  中進行相關操作。  
-        - 最多可變更2次列車，且必須距離列車從乘車站發車的時間3分鐘以上。但是，無法變更乘車人數。  
-        - 變更列車後，如果變更前已支付的費用不足，則您還需要支付差價；如有剩餘，將退還您差價。  
-
 
 ### 💴 換日元  
 - 麻煩哥哥換日元  
@@ -58,6 +52,11 @@
   - 電子信箱:  
     - kuanminchen.km@gmail.com
   - 接著會傳送驗證碼，旻旻會協助大家一一登入  
+
+### 飯站是否付款
+- hotel MONday 京都烏丸二条：現場付  
+- ホテル トウ 西洞院：現場付  
+- OMO7星野：已付款  
   
 ---  
   
