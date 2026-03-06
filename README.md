@@ -290,12 +290,13 @@
 - 起迄時間：10:02發車(從**トロッコ嵯峨**)，10:25到達(到**トロッコ亀岡**)  
 
 ### 🚌 坐公車前往乘船處  
-- 直行39:小火車龜岡站-保津川乘船場前 [京阪京都交通](https://japantravel.navitime.com/zh-tw/area/jp/railroad/00045010/)
+- 從小火車下站處，坐巴士去搭船處。影片教學如何前往 [點我看影片](https://www.youtube.com/watch?v=jkm5ZL-9FTc)  
+- 直行39:小火車龜岡站-保津川乘船場前 [京阪京都交通](https://japantravel.navitime.com/zh-tw/area/jp/railroad/00045010/)  
 - 另一個公車資訊 [點我打開網頁](https://www.navitime.co.jp/bus/route/00045010/%E7%9B%B4%E8%A1%8C%EF%BC%93%EF%BC%99%EF%BC%9A%E3%83%88%E3%83%AD%E3%83%83%E3%82%B3%E4%BA%80%E5%B2%A1%E9%A7%85%EF%BC%8D%E4%BF%9D%E6%B4%A5%E5%B7%9D%E4%B9%97%E8%88%B9%E5%A0%B4%E5%89%8D%EF%BC%BB%E4%BA%AC%E9%98%AA%E4%BA%AC%E9%83%BD%E4%BA%A4%E9%80%9A%EF%BC%BD)  
 
 ### 🚣 保津川遊船  
 - 保津川 [點我看影片](https://www.youtube.com/shorts/H898Qe7z7bc)  
-- 從小火車下站處，坐巴士去搭船處。影片教學如何前往 [點我看影片](https://www.youtube.com/watch?v=jkm5ZL-9FTc)  
+- **到服務窗口，出示憑證，兌換乘船券。到登船處、排隊上船。**  
 - 全程航行約2小時。船的班次: 從早上9:00第1班次，之後每整點1班 (**建議坐13:00班次**)    
 - 船程會回到渡月橋附近（剛好看夕陽）  
 - 歷史背景：從物流命脈到觀光名勝  
