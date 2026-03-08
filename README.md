@@ -43,10 +43,15 @@
 
 ### 🔧 小工具
 - 日本的案內轉乘查詢 [按我打開網頁](https://www.navitime.co.jp/zh-tw/transfer/)  
-- 結帳的手勢 [點我查看](https://youtube.com/shorts/hr9Yp-B4Sts?si=Qmza32272CdMggQt)
-- 如何拍美美櫻花 [點我查看](https://youtube.com/shorts/luUSSzC6-Zg?si=hQvNGFl4-9M2l3LJ)
-- 京都必吃美食 1  [點我開吃](https://www.youtube.com/watch?v=tDx9fbbUuiU)
-- 京都必吃美食 2  [點我開吃](https://www.youtube.com/watch?v=alOV6oi46pc)  
+- 結帳的手勢 [點我查看](https://youtube.com/shorts/hr9Yp-B4Sts?si=Qmza32272CdMggQt)  
+- 「借過」怎麼說 [點我查看](https://youtube.com/shorts/orZIFn276Jg?si=N4a4ShU8axC_elqs)  
+- 「我要下車」怎麼說 [點我查看](https://youtube.com/shorts/OrKyg3W5VH0?si=jOPWg_eSDuXhoN5z)  
+- 離開餐廳的時候要說什麼 [點我查看](https://youtube.com/shorts/YL6wDdxZXzY?si=DSzduZKddDXkmpHp)  
+- 結帳「一次付清嗎？」[點我查看](https://youtube.com/shorts/eC_UYVvVDe4?si=nZ6JeFHzcJGT6soU)  
+- 結帳「要袋子嗎？」 [點我查看](https://youtube.com/shorts/OrKyg3W5VH0?si=jOPWg_eSDuXhoN5z)   
+- 如何拍美美櫻花 [點我查看](https://youtube.com/shorts/luUSSzC6-Zg?si=hQvNGFl4-9M2l3LJ)  
+- 京都必吃美食 1  [點我開吃](https://www.youtube.com/watch?v=tDx9fbbUuiU)  
+- 京都必吃美食 2  [點我開吃](https://www.youtube.com/watch?v=alOV6oi46pc)   
 
 ### 🥟 安裝klook的中文語音導覽
 - 頻果手機: [按我打開並安裝](https://apps.apple.com/us/app/visites-du-palais-imp%C3%A9rial/id1234070799?l=fr-FR)  
