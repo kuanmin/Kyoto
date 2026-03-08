@@ -5,7 +5,7 @@
   
 ## ✈️ 出發前準備  
 ### 🎟️ 票券  
-- 麻煩哥哥在 KKday 買 南海電鐵 4月7日 單程票 (從**南海電鐵新今宮**到**關西機場**)  
+- 麻煩哥哥 買 南海電鐵 4月7日 單程票 (從**南海電鐵新今宮**到**關西機場**)  
   - KKDay 購買
     - 線上買較便宜 [點我看影片說明](https://www.youtube.com/watch?v=9m0LgsJ7QG4&t=374s)  
     - 購票網頁 [按我打開網頁](https://www.kkday.com/zh-tw/product/19691-nankai-rapit-airport-express-kix-to-osaka?srsltid=AfmBOooIct6EnrqCRkXIT1uKyglQP5Mzn9ywMVRNw2AIuKB5oMyrLFHh)
