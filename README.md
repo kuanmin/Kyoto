@@ -77,6 +77,7 @@
 - ✈️ 12:50 抵達 大阪 關西國際機場第 1 航廈
 - 打開日本入境資料QR碼 通過海關檢查 [點我打開網頁](https://www.vjw.digital.go.jp/)   
 - 打開KKday的Haruka車票劃位。使用教學:[點我](https://www.youtube.com/shorts/sXkYSI0HSZY)
+  - 多人票劵怎麼用 [點我看影片說明](https://www.youtube.com/watch?v=rsdzhVMTTuk)  
   - (旻旻的西鐵帳號ID:787824654799；PW:Aiop789!；需要email的話:kuanminchen.km@gmail.com)  
 - 取行李 → 和旻旻會合
 - 麻煩哥哥將入境貼紙登入到入境系統 [點我打開網頁](https://www.vjw.digital.go.jp/)，方便之後採購辦理退稅。  
@@ -510,7 +511,8 @@
 
 ### 🚄 劃位 隔天南海電鐵車票  
 - 打開KKday的 南海電鐵 車票 劃位。 
-  - [點我看官網使用說明](https://www.kkday.com/zh-tw/product/19691-nankai-rapit-airport-express-kix-to-osaka?srsltid=AfmBOooIct6EnrqCRkXIT1uKyglQP5Mzn9ywMVRNw2AIuKB5oMyrLFHh)  
+  - [點我看官網使用說明](https://www.kkday.com/zh-tw/product/19691-nankai-rapit-airport-express-kix-to-osaka?srsltid=AfmBOooIct6EnrqCRkXIT1uKyglQP5Mzn9ywMVRNw2AIuKB5oMyrLFHh)
+  - 分票說明 [點我查看](https://content.linktivity.io/supplier-link/nankai/1IHDZ_0ab4e4bc-d14a-4c69-aa0f-7751d2676c06.pdf)  
   
 ---  
   
