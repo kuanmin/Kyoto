@@ -4,32 +4,6 @@
 ---  
   
 ## ✈️ 出發前準備  
-### 🎟️ 票券  
-- 麻煩哥哥 買 南海電鐵 4月7日 單程票 (從**南海電鐵新今宮**到**關西機場**)  
-  - KKDay 購買
-    - 線上買較便宜 [點我看影片說明](https://www.youtube.com/watch?v=9m0LgsJ7QG4&t=374s)  
-    - 購票網頁 [按我打開網頁](https://www.kkday.com/zh-tw/product/19691-nankai-rapit-airport-express-kix-to-osaka?srsltid=AfmBOooIct6EnrqCRkXIT1uKyglQP5Mzn9ywMVRNw2AIuKB5oMyrLFHh)
-    - 選擇 [南海電鐵 Rapi:t 機場快線單程票]，然後選擇 [難波站（新今宮站、天下茶屋站、堺站）出發（單程）]  
-  - 南海電鐵(公司) 官網 購買  
-    - 官網購買電子券 [點我打開官網](https://www.howto-osaka.com/tc/ticket/rapit/)  
-    - 此票券包含「單程乘車券」以及「單程特急Rapi:t特急券」  
-    - 購票後，分票說明 [點我查看](https://content.linktivity.io/supplier-link/nankai/1IHDZ_0ab4e4bc-d14a-4c69-aa0f-7751d2676c06.pdf)
-    - 使用QR碼進站  
-    - **用email註冊會員**
-    - 爸媽飛機 19:02 起飛  
-      - **新今宮**出發時間 / **關西機場**到達時間 / 南海電鐵**車次**    
-      - 16:02 / 16:41 / rapi:t A29號  
-      - 16:32 / 17:07 / rapi:t B53號(**建議**)  
-      - 17:02 / 17:37 / rapi:t B55號  
-      - 17:32 / 18:07 / rapi:t B57號  
-      - 18:02 / 18:39 / rapi:t B59號
-    - 確確推估 ✅ 最保險時間表:  
-      - 17:00–17:20 到機場  
-      - 17:30 前托運行李  
-      - 18:20 開始登機  
-      - 18:50 登機門關閉  
-      - 19:02 起飛    
-
 ### 💴 換日元  
 - 麻煩哥哥換日元  
 
@@ -62,8 +36,8 @@
   - 接著會傳送驗證碼，旻旻會協助大家一一登入  
 
 ### 💰 飯站是否付款
-- hotel MONday 京都烏丸二条：現場付  
-- ホテル トウ 西洞院：現場付  
+- hotel MONday 京都烏丸二条：到場付  
+- ホテル トウ 西洞院：到場付  
 - OMO7星野：已付款  
   
 ---  
@@ -515,10 +489,17 @@
 - 超方便交通： JR「櫻之宮」站或地鐵「天滿橋」站步行3-5分鐘即達。  
 
 ### 🚄 劃位 隔天南海電鐵車票  
-- 打開KKday的 南海電鐵 車票 劃位。 
+- 打開KKday的 南海電鐵 車票，分票給每個人的手機。 
   - [點我看官網使用說明](https://www.kkday.com/zh-tw/product/19691-nankai-rapit-airport-express-kix-to-osaka?srsltid=AfmBOooIct6EnrqCRkXIT1uKyglQP5Mzn9ywMVRNw2AIuKB5oMyrLFHh)
   - 分票說明 [點我查看](https://content.linktivity.io/supplier-link/nankai/1IHDZ_0ab4e4bc-d14a-4c69-aa0f-7751d2676c06.pdf)  
-  
+  - 此票券包含「單程乘車券」以及「單程特急Rapi:t特急券」  
+  - [點我打開官網](https://www.howto-osaka.com/tc/ticket/rapit/)
+  - 如需調整，可以參考前後班次：  
+    - **新今宮**出發時間 / **關西機場**到達時間 / 南海電鐵**車次**    
+    - 16:02 / 16:41 / rapi:t A29號  
+    - 16:32 / 17:07 / rapi:t B53號(**購買班次**)  
+    - 17:02 / 17:37 / rapi:t B55號  
+
 ---  
   
 ## 📅 4/7（星期二）｜最後衝刺賞櫻＋回家  
@@ -547,5 +528,9 @@
 - 大阪城公園（有星巴克）
 
 ### ✈️ 回程  
-- 從「新今宮」到「關西機場」坐南海電鐵特色列車：Rapi:t（速度快、車廂美）   
-- 關西機場第一航廈 搭乘 華航 CI 173 19:05 起飛回溫暖的家~ 
+- 從「新今宮」到「關西機場」坐南海電鐵特色列車：Rapi:t（速度快、車廂美） 
+  - 列車：Rapi:t 53號  
+  - 坐位：第3車廂 11號12號15號16號  
+  - 出發時間：16:32  
+  - 到達時間：17:07  
+- 關西機場第一航廈 搭乘 華航 CI 173 19:05 起飛回溫暖的家~  
