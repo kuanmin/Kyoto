@@ -6,7 +6,7 @@
 ## ✈️ 出發前準備  
 ### 💴 換日元  
 - 麻煩哥哥換日元  
-
+- 暈船藥
 ### 📡 申請漫遊 (台灣大哥大)  
 - 7天、4人、5GB: 499元  
 - 7天、4人、12GB: 799元  
@@ -348,6 +348,20 @@
 - 從小火車下站處，坐巴士去搭船處。影片教學如何前往 [點我看影片](https://www.youtube.com/watch?v=jkm5ZL-9FTc)  
 - 直行39:小火車龜岡站-保津川乘船場前 [京阪京都交通](https://japantravel.navitime.com/zh-tw/area/jp/railroad/00045010/)  
 - 另一個公車資訊 [點我打開網頁](https://www.navitime.co.jp/bus/route/00045010/%E7%9B%B4%E8%A1%8C%EF%BC%93%EF%BC%99%EF%BC%9A%E3%83%88%E3%83%AD%E3%83%83%E3%82%B3%E4%BA%80%E5%B2%A1%E9%A7%85%EF%BC%8D%E4%BF%9D%E6%B4%A5%E5%B7%9D%E4%B9%97%E8%88%B9%E5%A0%B4%E5%89%8D%EF%BC%BB%E4%BA%AC%E9%98%AA%E4%BA%AC%E9%83%BD%E4%BA%A4%E9%80%9A%EF%BC%BD)  
+
+### 📝 詳細筆記
+- 龜岡小火車站出站後，沿隧道步行至巴士乘車點，發車時間為9:35-15:35（每小時一班），車程直達碼頭。
+- 巴士可以使用ICOCA卡刷卡付費
+- 公車下站處 [點我看地點](https://maps.app.goo.gl/VDwsL9JdoVkonLvd7)  
+- 營運中心 [點我看地點](https://maps.app.goo.gl/H3jmtZKQsDN7vkjT7)
+- 前往2樓櫃檯，換取實體票券
+- **換票和現場購票，是同一個櫃台。**
+- 下公車，旻旻先衝去二樓換票，爸媽哥慢慢走。
+- 換票方式：出示 KKday 訂單的 QR Code 電子憑證 給工作人員核對，即可兌換實體船票。船票會有編號。
+- 換完票，**先上廁所** ~ **先上廁所** ~ **先上廁所** ~ 
+- **！爸爸哥哥吃暈船藥！**
+- 到乘船處 [點我看地點](https://maps.app.goo.gl/shwq15qkbndYtP829)  
+- 工作人員會叫編號，然後依指示上船(並非持有預約票即可直接插隊)。
 
 ### 🚣 保津川遊船  
 - 保津川 [點我看影片](https://www.youtube.com/shorts/H898Qe7z7bc)  
