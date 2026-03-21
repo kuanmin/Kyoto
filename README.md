@@ -517,7 +517,7 @@
 ### 🍟 嵐電 
 - 坐特色列車，去平野神社  
  
-### 晚餐 韓日茶苑 楽zen (Kannichi Chaen Rakuzen) 
+### 🫕 晚餐 韓日茶苑 楽zen (Kannichi Chaen Rakuzen) 
 - [餐廳位置點我](https://maps.app.goo.gl/iZxWZ7VvHoMzUKZW7)
 - 深受好評的韓國藥膳料理餐廳。
 - 以溫和、道地的韓國粥品與藥膳茶聞名，特別適合想要在京都旅行途中調理身體、舒緩疲勞的食客。 
@@ -536,7 +536,7 @@
   - 公休日：每週二。
 - 吃飽，一路經過天滿宮，前往平野神社。
 
-### Latte Art Junkies Roasting Shop - Kitano Tenmangu Shrine
+### 🧁 Latte Art Junkies Roasting Shop - Kitano Tenmangu Shrine
 - [餐廳位置點我](https://maps.app.goo.gl/wtKZMTJuDyTvKJjF7)
 - 餐廳隔壁的咖啡店 
 
