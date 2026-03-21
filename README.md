@@ -690,14 +690,14 @@
 - [官網點我](https://www.suito-osaka.jp/zh-TW/info/event/4745/)  
 - [點我看影片](https://www.youtube.com/watch?v=AWAaHwVuRyA)  
 
-### 🛍️ 阿倍野 HARUKAS 300
-- 阿倍野 HARUKAS 300 觀景台位於大阪市阿倍野區，是日本第一高樓「阿倍野 HARUKAS」的最頂層區域。其名稱「300」代表建築物離地高度達 300 公尺。觀景台由 58 樓至 60 樓組成，以全玻璃帷幕打造，提供 360 度俯瞰大阪平原、京都、神戶甚至淡路島的絕佳視野。  
-- [點我看影片](https://www.youtube.com/watch?v=lF8jDqG_hzI)  
-
 ### 🍢 血拼採購
 - KITTE 大阪百貨 [點我看影片](https://www.youtube.com/watch?v=8rQwEkCzC5w)  
   - 位於梅田，於 2024 年 7 月 31 日正式開幕，是大阪車站西口直通的新地標。這座商場坐落於原大阪中央郵局舊址的「JP TOWER 大阪」內，以「UNKNOWN」為概念，集結了日本各地的美食與物產。
 - 大阪血拼指南 [點我看影片](https://youtu.be/E_z5AGwMDSg?si=EpckvsYcGtpFJLs1)  
+
+### 🛍️ 阿倍野 HARUKAS 300 (比較接近坐車的新今宮)
+- 阿倍野 HARUKAS 300 觀景台位於大阪市阿倍野區，是日本第一高樓「阿倍野 HARUKAS」的最頂層區域。其名稱「300」代表建築物離地高度達 300 公尺。觀景台由 58 樓至 60 樓組成，以全玻璃帷幕打造，提供 360 度俯瞰大阪平原、京都、神戶甚至淡路島的絕佳視野。  
+- [點我看影片](https://www.youtube.com/watch?v=lF8jDqG_hzI)  
 
 ### 🌸 其他備選賞櫻點  
 - 毛馬桜之宮公園（花最多）  
