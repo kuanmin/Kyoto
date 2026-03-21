@@ -534,6 +534,11 @@
   - 週一、週三至週五：11:00–15:00, 18:00–20:00。
   - 週六、週日：11:00–15:00, 18:00–21:30。
   - 公休日：每週二。
+- 吃飽，一路經過天滿宮，前往平野神社。
+
+### Latte Art Junkies Roasting Shop - Kitano Tenmangu Shrine
+- [餐廳位置點我](https://maps.app.goo.gl/wtKZMTJuDyTvKJjF7)
+- 餐廳隔壁的咖啡店 
 
 ### 🌸 平野神社夢幻夜櫻  
 - [點我看影片](https://www.youtube.com/shorts/HzlmG-7TY40)  
