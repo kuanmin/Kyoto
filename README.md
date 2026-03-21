@@ -369,6 +369,8 @@
 - **！爸爸哥哥吃暈船藥！**
 - 到乘船處 [點我看地點](https://maps.app.goo.gl/shwq15qkbndYtP829)  
 - 工作人員會叫編號，然後依指示上船(並非持有預約票即可直接插隊)。
+- 下船前有船上店家，吃小吃
+- 下船處 [點我看地點](https://maps.app.goo.gl/6jiyfQh812CXkUek9)
 
 ### 🚣 保津川遊船  
 - 保津川 [點我看影片](https://www.youtube.com/shorts/H898Qe7z7bc)  
