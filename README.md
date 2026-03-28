@@ -21,6 +21,7 @@
   - 👉 建議：洋蔥式穿搭＋薄外套（晚上看夜櫻會冷）
 
 ### 🔧 小工具
+- 機器 諸值 實體ICOCA卡片 [點我查看](https://youtube.com/shorts/g5sF9Bhn7pw?si=uo8jRaNU4qfB4nkg)  
 - 京都 坐公車 寶典 [點我查看](https://www.youtube.com/watch?v=-mEu3an3XiE)
 - 日本的案內轉乘查詢 [按我打開網頁](https://www.navitime.co.jp/zh-tw/transfer/)  
 - 結帳的手勢 [點我查看](https://youtube.com/shorts/hr9Yp-B4Sts?si=Qmza32272CdMggQt)  
