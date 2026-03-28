@@ -23,14 +23,14 @@
 ### 🔧 小工具
 - 透過便利商店（7-11 / Lawson 等）加值ICOCA實體卡片，只能用現金
   - **便利商店不允許用信用卡幫你加值**
-  - 用超商機器加值: [點我查看1](https://www.youtube.com/watch?v=xJTGgCjsCNI)
+  - 用超商機器加值: [點我查看](https://www.youtube.com/watch?v=xJTGgCjsCNI)
   - 請店員加值:
     - 跟店員說：👉「チャージお願いします」（請幫我加值）
     - 把 ICOCA 卡交給他
     - 付現金（只能現金）
     - 完成加值
 - 機器 諸值 實體ICOCA卡片
-  - 平放實體卡片:  [點我查看2](https://youtube.com/shorts/g5sF9Bhn7pw?si=uo8jRaNU4qfB4nkg)  
+  - 平放實體卡片:  [點我查看](https://youtube.com/shorts/g5sF9Bhn7pw?si=uo8jRaNU4qfB4nkg)  
   - 插入實體卡片: [點我查看](https://youtube.com/shorts/pnKhBBSWcPY?si=sEcmhUdO3ai8ubnq)  
 - 京都 坐公車 寶典 [點我查看](https://www.youtube.com/watch?v=-mEu3an3XiE)
 - 日本的案內轉乘查詢 [按我打開網頁](https://www.navitime.co.jp/zh-tw/transfer/)  
