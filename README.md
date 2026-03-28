@@ -21,6 +21,12 @@
   - 👉 建議：洋蔥式穿搭＋薄外套（晚上看夜櫻會冷）
 
 ### 🔧 小工具
+- 透過便利商店（7-11 / Lawson 等）加值ICOCA實體卡片，只能用現金
+  - **便利商店不允許用信用卡幫你加值**
+  - 跟店員說：👉「チャージお願いします」（請幫我加值）
+  - 把 ICOCA 卡交給他
+  - 付現金（只能現金）
+  - 完成加值
 - 機器 諸值 實體ICOCA卡片
   - 平放實體卡片: [點我查看](https://youtube.com/shorts/g5sF9Bhn7pw?si=uo8jRaNU4qfB4nkg)
   - 插入實體卡片: [點我查看](https://youtube.com/shorts/pnKhBBSWcPY?si=sEcmhUdO3ai8ubnq)  
